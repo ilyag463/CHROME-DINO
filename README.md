@@ -34,5 +34,5 @@ C:Users/<NAME USER>/dinosaur-chrome/main.exe
 
 ## Contact
 
-you can watch ne DEV ideas[in my Telegramm chanel](https://t.me/+dl7dzR5tnxYzNjcy) 
+you can watch ne DEV ideas [in my Telegramm chanel](https://t.me/+dl7dzR5tnxYzNjcy) 
 
